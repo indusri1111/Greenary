@@ -1,2 +1,2 @@
-# Glory-Greenary
+# Greenary
  
